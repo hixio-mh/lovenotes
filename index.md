@@ -8,5 +8,5 @@ Posted at https://instagram.com/alanarqueza https://twitter.com/alanarqueza
 
 ### Instagram AlanArqueza Twitter AlanArqueza
 
-2020 December 13 11:25 PM California. Funding announcement project $33,000,000. Send money to Cash App $AlanArqueza and Venmo AlanArqueza.
+Posted Instagram Story 2020 December 13 11:25 PM California. Funding announcement project $33,000,000. Send money to Cash App $AlanArqueza and Venmo AlanArqueza.
 

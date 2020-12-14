@@ -1,4 +1,4 @@
-### $33,000,000 Instgram Twitter Admirer Funding Project
+### $33,000,000 Instagram Twitter Admirer Funding Project
 
 Message Instagram Story: "Its Love! when friends and followers will be happy to give away $3 or $900 for admirer Sir Alan Arqueza who will buy a new $33 million dollar luxury residence in Henderson, Nevada with the donations received. You are loving and so beautiful. Tell all your girlfriends so they can tell all their girlfriends about the gifting announcement of $3 or $900. with a goal of $33,000,000." Written and thoughts by Alan Arqueza.
 

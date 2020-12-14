@@ -1,12 +1,10 @@
-## Welcome to GitHub Pages
+### $33,000,000 Instgram Twitter Admirer Funding Project
 
-You can use the [editor on GitHub](https://github.com/pasokon/lovenotes/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Message Instagram Story: "Its Love! when friends and followers will be happy to give away $3 or $900 for admirer Sir Alan Arqueza who will buy a new $33 million dollar luxury residence in Henderson, Nevada with the donations received. You are loving and so beautiful. Tell all your girlfriends so they can tell all their girlfriends about the gifting announcement of $3 or $900. with a goal of $33,000,000." Written and thoughts by Alan Arqueza.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Instgram AlanArqueza Twitter AlanArqueza
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+2020 December 13 11:25 PM California. Funding announcement project $33,000,000. Send money to Cash App $AlanArqueza and Venmo AlanArqueza.
 
 ```markdown
 Syntax highlighted code block
